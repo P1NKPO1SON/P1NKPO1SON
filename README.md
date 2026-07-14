@@ -1,6 +1,11 @@
-**<img width="1000" height="50" alt="1000227895" src="https://github.com/user-attachments/assets/e742ab09-6f4f-482e-ada5-dc044c722fcd" />**
+<img width="1000" height="150" alt="1000227905" src="https://github.com/user-attachments/assets/64cb1514-f50b-4a99-8c8e-40abc29c5f7c" />
 
-                          placeholder
 
-<img width="547" height="170" alt="1000227893" src="https://github.com/user-attachments/assets/d6d261ae-a933-4c73-9c55-741a2d5b247a" />
+
+
+　　 　　 　　 　　 　　꒰ 　　  　　 Reiju's꯭   　  　 𝜗ৎ 　  　　**Poisoned**　　 　  　　 Ი𐑼　　 　　 Territory
+
+<img width="1000" height="500" alt="1000227898" src="https://github.com/user-attachments/assets/5ef8db44-4d5f-4e06-bae7-86c8f8fe9f04" />
+
+
 
