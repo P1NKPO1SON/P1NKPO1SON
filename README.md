@@ -6,7 +6,7 @@
 
 
 　　　　꒰ 　　  　　 Reiju's꯭   　  　 𝜗ৎ 　  　　**Poisoned**　　 　  　　 Ი𐑼　　 　　 Territory
- 　　  　　  　　  　　  　　  　　  　　  　　 　　   [Ata](https://p1nkpo1son.atabook.org/)  　　 
+ 　　  　　  　　  　　  　　  　　  　　  　　 　　    [Ata](https://p1nkpo1son.atabook.org/)  　　 
 
 <img width="1000" height="500" alt="1000227917" src="https://github.com/user-attachments/assets/38bd71fd-d1b5-42c8-9abf-dd45bb73a068" />
 
