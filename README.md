@@ -4,7 +4,7 @@
 
         　　 　 　　 　　 　 .     𓌔    Sleeping beauty 　 　ֺּׅ𓏽⑅ 　　 　　 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 <img width="1000" height="500" alt="1000236723" src="https://github.com/user-attachments/assets/f1b76fee-23b3-490d-ae1a-85d8f18c268f" />　
-　　　　 <img width="250" height="250" alt="1000236713" src="https://github.com/user-attachments/assets/73496a0d-61d3-45fd-822e-6ca3871cee9c" /> 　　 　　 　　۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱  　　 　　    <img width="250" height="250" alt="1000236714" src="https://github.com/user-attachments/assets/baa7d1f7-4610-432e-8005-40c6b05ea234" /> 　　　 
+　　　　 <img width="250" height="250" alt="1000236713" src="https://github.com/user-attachments/assets/73496a0d-61d3-45fd-822e-6ca3871cee9c" /> 　　۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱  　 <img width="250" height="250" alt="1000236714" src="https://github.com/user-attachments/assets/baa7d1f7-4610-432e-8005-40c6b05ea234" /> 　　　 
 
 
  　　 　　  　　 　　  　　 　　  　　 　　 #**𝓟ℴ𝒾𝓼ℴ𝓃𓏼✚⧽**　　 
