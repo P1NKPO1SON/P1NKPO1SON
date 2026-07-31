@@ -19,6 +19,6 @@
 
 　　  　　  　　  　　  　　  　　  　　    [PonyTown's vinsmoke reiju!](https://github.com/pt-hall-of-media)
 
-　　  　　  　　  　　  　　  　　  　　   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31womn62h5kusk63xl4xnczk6ywi&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff)](https://spotify-github-profile.kittinanx.com/api/view?uid=31womn62h5kusk63xl4xnczk6ywi&redirect=true)
+　　  　　  　　  　　  　　　   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31womn62h5kusk63xl4xnczk6ywi&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff)](https://spotify-github-profile.kittinanx.com/api/view?uid=31womn62h5kusk63xl4xnczk6ywi&redirect=true)
 　　  　　  　　  　　  　　  　　  　　                               
                               <img width="1000" height="150" alt="1000236632" src="https://github.com/user-attachments/assets/3ff1f97e-a367-4ba5-856e-e4ed3630edc4" />
