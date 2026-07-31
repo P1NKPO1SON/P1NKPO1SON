@@ -1,15 +1,18 @@
-<img width="1000" height="150" alt="1000236638" src="https://github.com/user-attachments/assets/ad3dbf46-8a90-4024-b8dd-39ffbf408586" />
+   　　 　 　　 <img width="300" height="50" alt="1000236691" src="https://github.com/user-attachments/assets/32b5c953-1c67-4d86-86d3-dd100166da54" /> 　　 　　۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱  　　 　　 <img width="300" height="50" alt="1000236690" src="https://github.com/user-attachments/assets/24832d3d-dd1a-4cec-bbe6-fb47858e525e" />
 
 
 
+        　　 　 　　 　　 　 .     𓌔    Sleeping beauty 　 　ֺּׅ𓏽⑅ 　　 　　 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+<img width="1000" height="500" alt="1000236723" src="https://github.com/user-attachments/assets/f1b76fee-23b3-490d-ae1a-85d8f18c268f" />　
+　　　　 <img width="250" height="250" alt="1000236713" src="https://github.com/user-attachments/assets/73496a0d-61d3-45fd-822e-6ca3871cee9c" /> 　　   <img width="250" height="250" alt="1000236714" src="https://github.com/user-attachments/assets/baa7d1f7-4610-432e-8005-40c6b05ea234" /> 　　　 <img width="250" height="250" alt="1000236733" src="https://github.com/user-attachments/assets/0cc74497-af3f-42e4-80ee-8c11cdef4289" />
 
 
+ 　　 　　  　　 　　  　　 　　  　　 　　 #**𝓟ℴ𝒾𝓼ℴ𝓃𓏼✚⧽**　　 
+ 　　　 
+.                                        　　 
 
+<img width="2000" height="1769" alt="1000236724" src="https://github.com/user-attachments/assets/ee6c5552-be6b-438e-9fe2-43894d81bf8b" />
 
-　　　　꒰ 　　  　　 Reiju's꯭   　  　 𝜗ৎ 　  　　**Poisoned**　　 　  　　 Ი𐑼　　 　　 Territory
- 　　  　　  　　  　　  　　  　　  　　  　　 　　    [Ata](https://p1nkpo1son.atabook.org/)      ̣̣̣   ,    ໒ྀི　[Guns.](https://guns.lol/p1nkpo1son)　 
-
-<img width="1000" height="600" alt="1000236639" src="https://github.com/user-attachments/assets/e3428188-379c-4174-a646-92c899e2cf3f" />
 
 
 
