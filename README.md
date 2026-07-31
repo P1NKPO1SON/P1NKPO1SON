@@ -21,11 +21,11 @@
 
 　　 　　 　　 
 
-　　  　　  　　  　　  　　  　　    ̣̣̣***𐙚彡𓏵ིྀ*** **𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟** ***𓈒 ຼ ͜𓐇𓏵 𐙚*** ̣̣̣ 
+　　  　　  　　  　　  　　  　　  　　  　　 ིྀ̣̣̣ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི ̣̣̣ 
 　　  　　  　　  　　  　　  　　  　　    
 
 
-　　  　　  　　  　　  　　  　.    𓌔　　 <ins>Poṉy̱ṯo̱wn' [𝓥𝒍𝓝𝓢ℳ𝒪𝒦ℰ rℰ𝒾𝒿𝓊!](https://github.com/pt-hall-of-media)　୨୧
+　　  　　  　　  　　  　　  　ִֶָ𓂃 ࣪ ִֶָ💮་༘࿐　　 <ins>Poṉy̱ṯo̱wn' [𝓥𝒍𝓝𝓢ℳ𝒪𝒦ℰ rℰ𝒾𝒿𝓊!](https://github.com/pt-hall-of-media)　୨୧
 
 　　  　　  　  [![f4ust_.'s Discord status](https://dsc-readme.tsuni.dev/api/user/1256798216570015774?aboutMe=%E3%80%80%E3%80%80++%E3%80%80%E3%80%80++%E3%80%80%E3%80%80%E3%80%80%F0%9D%93%90+%F0%9D%93%B0%F0%9D%93%B8%F0%9D%93%AD+%F0%9D%94%80%F0%9D%93%B1%F0%9D%93%B8+%F0%9D%93%AD%F0%9D%93%BB%F0%9D%93%AE%F0%9D%93%AA%F0%9D%93%B6%F0%9D%93%BC+%F0%9D%93%B2%F0%9D%93%B7+%F0%9D%93%BD%F0%9D%93%AE%F0%9D%93%BB%F0%9D%93%BB%F0%9D%93%B8%F0%9D%93%BB+%2C&pronouns=%E3%80%80%E3%80%80++%E3%80%80++++%F0%93%8C%94+%E3%80%80%E3%80%80+Sleeping+God+%E3%80%80+&banner=https%3A%2F%2Fstatico.soapcentral.com%2Feditor%2F2026%2F02%2Fa8854-17699631621653.jpg&theme=nitroDark&primaryColor=000000&accentColor=000000&width=500&font=medieval&effect=neon&nameColor1=ffffff)](https://github.com/the-snesler/discord-github-preview)
 　　  　　  　　  　　  　　  　　  　　                               
