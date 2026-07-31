@@ -1,4 +1,4 @@
-   　　 　 　　 <img width="300" height="50" alt="1000236691" src="https://github.com/user-attachments/assets/32b5c953-1c67-4d86-86d3-dd100166da54" /> 　　 　　۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱  　　 　　 <img width="300" height="50" alt="1000236690" src="https://github.com/user-attachments/assets/24832d3d-dd1a-4cec-bbe6-fb47858e525e" />
+   　　 　 　　 <img width="300" height="50" alt="1000236691" src="https://github.com/user-attachments/assets/32b5c953-1c67-4d86-86d3-dd100166da54" /> <img width="300" height="50" alt="1000236690" src="https://github.com/user-attachments/assets/24832d3d-dd1a-4cec-bbe6-fb47858e525e" />
 
 
 
