@@ -14,6 +14,8 @@
 
 </div>
 
+<img src="https://komarev.com/ghpvc/?username=P1NKPO1SON&label=Profile%20Views&color=809AED&style=flat-square">
+</p><div align="center">
 
 
 </p>
