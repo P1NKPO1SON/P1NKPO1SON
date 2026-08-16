@@ -1,37 +1,55 @@
-  <img width="300" height="50" alt="1000236691" src="https://github.com/user-attachments/assets/32b5c953-1c67-4d86-86d3-dd100166da54" /> <img width="300" height="50" alt="1000236690" src="https://github.com/user-attachments/assets/24832d3d-dd1a-4cec-bbe6-fb47858e525e" />
+<div align="right">
+
+# best viewed on laptops/tablets gng
+
+<div align="center">
+
+<div align="center">
+
+<img
+  src="https://github.com/user-attachments/assets/d7ba1295-747c-433f-9153-4ec09ed4f851"
+  width="100%"
+  alt="1000245400"
+/>
+
+</div>
 
 
+</p>
 
-        　　 　 　　 　　 　 .     𓌔    Sleeping beauty 　 　ֺּׅ𓏽⑅ 　　 　　 ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
-<img width="2000" height="361" alt="1000236725" src="https://github.com/user-attachments/assets/713890c9-5b9c-4193-9a2d-3ca8f3603a8d" />
+<div align="center">
 
+<img
+  src="https://github.com/user-attachments/assets/c3246c72-af4e-41ef-8895-1e15509a7489"
+  width="736"
+  alt="character"
+/>
 
-　 <img width="250" height="250" alt="1000236713" src="https://github.com/user-attachments/assets/73496a0d-61d3-45fd-822e-6ca3871cee9c" />　۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱  <img width="250" height="250" alt="1000236714" src="https://github.com/user-attachments/assets/baa7d1f7-4610-432e-8005-40c6b05ea234" /> 　　　 
+</div>
 
+<img src="assets/followers.gif" width="210" alt="Followers">
 
-   　　 　　˖⸝⸝·͟͟͞͞➳❥  　　 　　 𓎟𓎟𓎟　　 　 　　 [𝓐𝓉𝒶](P1NKPO1SON.ATABOOK.ORG) 　<img width="20" height="20" alt="1000236692" src="https://github.com/user-attachments/assets/7bbd374a-5e50-427f-8050-61745f490725" />   [𝓰𝓊𝓷𝓼](https://guns.lol/p1nkpo1son)　　 　 　۪#**𝓟ℴ𝒾𝓼ℴ𝓃𓏼✚⧽**  　　 　　 ༄.°
- 
- 　　　 
-.                                        　　 
+<br><br>
 
-<img width="2000" height="1769" alt="1000236724" src="https://github.com/user-attachments/assets/ee6c5552-be6b-438e-9fe2-43894d81bf8b" />
+<table align="center">
+  <tr>
+    <td align="center">
 
+working on iy
+  </tr>
+</table>
 
+<br>
 
+<table align="center">
+  <tr>
+    <td align="center">
+      <img src="assets/side-left.gif" width="180" alt="Decoration">
+    </td>
+    <td align="center">
+      <img src="assets/side-right.gif" width="180" alt="Decoration">
+    </td>
+  </tr>
+</table>
 
-　　 　　 　　 
-
-　　  　　  　　  　　  　　  ིྀ̣̣̣ 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི ̣̣̣　  　　  
-　　  　　  　　  　　  　　  　　  　　    
-
-
-　　  　　   　ִֶָ𓂃 ࣪ ִֶָ💮་༘࿐　　 <ins>Poṉy̱ṯo̱wn' [𝓥𝒍𝓝𝓢ℳ𝒪𝒦ℰ rℰ𝒾𝒿𝓊!](https://github.com/pt-hall-of-media)　୨୧ [2!](https://github.com/title-town)
-          
-          
-          
-          
-        
-
-　　    [![f4ust_.'s Discord status](https://dsc-readme.tsuni.dev/api/user/1256798216570015774?aboutMe=%E3%80%80%E3%80%80++%E3%80%80%E3%80%80++%E3%80%80%E3%80%80%E3%80%80%F0%9D%93%90+%F0%9D%93%B0%F0%9D%93%B8%F0%9D%93%AD+%F0%9D%94%80%F0%9D%93%B1%F0%9D%93%B8+%F0%9D%93%AD%F0%9D%93%BB%F0%9D%93%AE%F0%9D%93%AA%F0%9D%93%B6%F0%9D%93%BC+%F0%9D%93%B2%F0%9D%93%B7+%F0%9D%93%BD%F0%9D%93%AE%F0%9D%93%BB%F0%9D%93%BB%F0%9D%93%B8%F0%9D%93%BB+%2C&pronouns=%E3%80%80%E3%80%80++%E3%80%80++++%F0%93%8C%94+%E3%80%80%E3%80%80+Sleeping+God+%E3%80%80+&banner=https%3A%2F%2Fstatico.soapcentral.com%2Feditor%2F2026%2F02%2Fa8854-17699631621653.jpg&theme=nitroDark&primaryColor=000000&accentColor=000000&width=500&font=medieval&effect=neon&nameColor1=ffffff)](https://github.com/the-snesler/discord-github-preview)
-　　  　　  　　  　　  　　  　　  　　                               
-                            
+<p>
