@@ -67,3 +67,4 @@ working on iy
 />
 
 </div>
+<img width="1000" height="500" alt="1000261731" src="https://github.com/user-attachments/assets/1a5d804d-8acb-4678-ba5b-3cbfab7d3834" /> me and those two fucking idiots ❤️‍🔥❤️‍🔥❤️‍🔥
