@@ -13,7 +13,8 @@
 
 
 <div align="center">
+<img width="1000" height="500" alt="1000293588" src="https://github.com/user-attachments/assets/8ebacc43-286e-4d44-bfa1-4752076b720a" />
 
 
 
-wip.
+my very cool friend <3
