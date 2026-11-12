@@ -17,4 +17,4 @@
 
 
 
-my very cool friend <3
+my very cool friends <3
